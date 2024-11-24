@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OMGSOFTWARE
-- 👀 I’m interested in ... Creating pr Adpting solutions for the betterment of mankind 
+- 👀 I’m interested in ... Creating & Adpting solutions for the betterment of mankind 
 - 🌱 I’m currently learning ... everything as i know nothing
 - 💞️ I’m looking to collaborate on ... Lume Coin passion project
 - 📫 How to reach me ... comparcola@gmail.com
